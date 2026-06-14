@@ -1,1 +1,0 @@
-# linumsolis.github.io
